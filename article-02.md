@@ -1,5 +1,6 @@
 # Importance & Basic Elements of Communication
 
+<img width="1376" height="768" alt="image_b0cf4dd5" src="https://github.com/user-attachments/assets/3373a1f2-fcec-4e0b-9690-8d1db196c0ae" />
 
 
 *How mastering five basic elements, active listening, and mindful communication protects your career, relationships, and peace of mind.*
